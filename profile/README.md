@@ -1,0 +1,1 @@
+Stanisław Synowiec | ssynowiec.pl
